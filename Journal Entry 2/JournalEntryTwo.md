@@ -6,12 +6,15 @@ April 29, 2021
 
 
 <img src="Stand.JPG" width=250>
+
 In January of this year, I searched online for a stand that I could utilize for my Nintendo Switch. When I was carrying my Switch everywhere I went, I found it inconvenient to have to use the little built-in kickstand in the back of the Nintendo switch. The kickstand is very breakable, not very flexible, and can become difficult to pull out. There was also a huge problem when it came down to charge my Nintendo Switch. The charging port for the Switch is in the center bottom of the console. I could not use the built-in stand and charge my switch at the same time to continue my game. The Lamicall Adjustable Playstand was one of the affordable choices I saw on the first page of Amazon. I decided to order it for $15. 
 
 <img src="TStandSwitch.jpg" width=250>
+
 The main reason I ordered it was because of its ability to hold my Nintendo switch and charge simultaneously. Not only was the stand __effective__ with its ability to charge and hold the Switch, but I was also surprised with the quality PlayStand. The stand is made of aluminum alloy which is proving very durable. 
 
 <img src="TStandGrip.jpg" width=250>
+
 The stand also has a rubber grip that holds any mobile device without scratching it. The bottom of the stand also has 4 rubber grips which help prevent it from slipping on the surface it’s on.  
 
 <img src="TStandFolded.jpg" width=250> <img src="TstandAdjustable.jpg" width=250> <img src="TStandIphone.jpg" width=250>
