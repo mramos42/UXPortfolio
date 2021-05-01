@@ -15,7 +15,7 @@ The main reason I ordered it was because of its ability to hold my Nintendo swit
 
 <img src="TStandGrip.jpg" width=250>
 
-The stand also has a rubber grip that holds any mobile device without scratching it. The bottom of the stand also has 4 rubber grips which help prevent it from slipping on the surface it’s on.  
+The stand also has a rubber grip that holds any mobile device without scratching it. The bottom of the stand also has 4 rubber grips which help prevent it from slipping on the surface it’s on. This makes the stand __safe__ for mobile devices.   
 
 <img src="TStandFolded.jpg" width=250> <img src="TstandAdjustable.jpg" width=250> <img src="TStandIphone.jpg" width=250>
 
