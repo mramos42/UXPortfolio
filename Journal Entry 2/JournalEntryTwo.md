@@ -15,6 +15,7 @@ The main reason I ordered it was because of its ability to hold my Nintendo swit
 The stand also has a rubber grip that holds any mobile device without scratching it. The bottom of the stand also has 4 rubber grips which help prevent it from slipping on the surface it’s on.  
 
 <img src="TStandFolded.jpg" width=250> <img src="TstandAdjustable.jpg" width=250> <img src="TStandIphone.jpg" width=250>
+
 The Playstand has proved to be a very __useful__ accessory due to its compact and portable design. The stand is __memorable__ as anyone can set it up at any angle and easily fold it with little to no instruction. I can easily fold it to take on the go in my Switch case/bag, put it in my pocket, and store it away with the rest of my Nintendo Switch accessories. I tend not to store it away as I also now use it for my iPhone XR. Its become really __useful__ for my iPhone as I can watch a video on Youtube while on the stand, either with the phone up vertically or horizontally.  
 
 
