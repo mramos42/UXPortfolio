@@ -1,8 +1,7 @@
 # Marko UX Portfolio
 
 
-## [UX Team Project] (https://usabilityengineering.github.io/Parkers/)
-
+## [UX Team Project](https://usabilityengineering.github.io/Parkers/)
 
 ## UX Journal
 
